@@ -1,6 +1,6 @@
 # 2004
 Part number:
-- ad3OEM / Interchange Numbers: 232210A030, 2322116490
+- OEM / Interchange Numbers: 232210A030, 2322116490
 - OEM / Interchange Numbers: 2322103040, 2322116490, 2322121020, 2322128030, 2322128280
 
 ## Market:
