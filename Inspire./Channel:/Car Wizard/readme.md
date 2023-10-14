@@ -1,0 +1,1 @@
+- [Why did the CAR WIZARD buy his teen daughter a '05 Toyota RAV4 with really unsafe brakes!?!](https://youtu.be/nfMxajnRFR8)
